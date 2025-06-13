@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **mustafa7bilal@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1x-k9mqpl3a2AcUXxmkBkoO--zCNVL5Ss/view?usp=sharing](https://drive.google.com/file/d/1zaz7rZhOs50WlE22JCU8MNBr5GUvj1_M/view?usp=sharing)
+- 📄 Resume [https://drive.google.com/file/d/1x-k9mqpl3a2AcUXxmkBkoO--zCNVL5Ss/view?usp=sharing](https://drive.google.com/file/d/1zaz7rZhOs50WlE22JCU8MNBr5GUvj1_M/view?usp=sharing)
 
 - ⚡ Fun fact **I break software for a living — on purpose. Finding bugs is my superpower 🐞⚡**
 
